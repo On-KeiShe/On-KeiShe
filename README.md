@@ -38,6 +38,6 @@ I’m a Junior Software Developer and have undertaken training at Northcoders Bo
 
 ### 📫 Let’s Connect
 - Email: on-kei_she@hotmail.co.uk 
-- LinkedIn: [https://www.linkedin.com/in/on-kei-she-61268213a/]
+- LinkedIn: https://www.linkedin.com/in/on-kei-she-61268213a/
 
 
