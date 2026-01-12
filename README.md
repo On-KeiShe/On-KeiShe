@@ -34,3 +34,9 @@ I’m a Junior Software Developer and have undertaken training at Northcoders Bo
 - Learning to break down complex problems into small, manageable steps
 - Working in a supportive environment and collaborating with others
 
+---
+
+### 📫 Let’s Connect
+- Email: on-kei_she@hotmail.co.uk 
+- [LinkedIn]: (https://www.linkedin.com/in/on-kei-she-61268213a/)
+
